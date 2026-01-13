@@ -1,1 +1,1 @@
-# Flapjack-hangover
+I'm new to the whole GitHub multi-verse. trying to navigate and proliferate a manageable income using code and ai. # Flapjack-hangover
